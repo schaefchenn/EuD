@@ -19,7 +19,7 @@
 Notizen: Fragen an Schimming
 
 Abmaße Eyeballen —> hat er vorgaben, wir brauchen die Maße der Cabin - Check (Eyballen ist ok)
-Abgabedatum —> Präsi --> eigentlich am 20.05.
+Abgabedatum —> Präsi --> eigentlich am 20.05. --> wurde auf 27.05. verschoben
 Finale Präsentation --> 08.07,
 Idee —> Durchsprechen - Check (wurde für gut befunden)
 
