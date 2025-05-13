@@ -31,3 +31,5 @@ Wie groß ist das Ding
 Den Preis der beiden PLätze auf die anderen Bui
 
 Handskizzen viel auf eine Folie die Powerpoint Seite muss gefüllt sein
+
+Armlehen min 50mm ideal 90mm
